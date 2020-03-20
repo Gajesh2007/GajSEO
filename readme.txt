@@ -1,1 +1,1 @@
-Copyrights reserved by <a href="https://gajeshsnaik.tech">Gajesh Naik</a>
+Copyrights reserved by Gajesh Naik
